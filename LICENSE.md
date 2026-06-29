@@ -1,4 +1,4 @@
-#  
+#  Experience anime vanguards like never before with secret Script for anime vanguards, the #1 Script. Includes esp and unlimited stamina for unbeatable
 
 
 
